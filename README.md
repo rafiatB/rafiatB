@@ -94,6 +94,7 @@ ATE Support – ClinDoc and orders<br>
  
 
 **💬HOW TO REACH ME:**<br>
+✔️Instagram: **[Rafiat Banwo](https://www.instagram.com/ratemyotschool/)<br>**
 ✔️Linkedin: **[Rafiat Banwo](https://www.linkedin.com/in/rafiat-banwo)<br>**
 ✔️E-Mail: **oyeenb21@gmail.com**
 
