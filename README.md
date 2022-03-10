@@ -2,7 +2,7 @@
 
 
 
-### Hi There,<br>***I'm Rafiat Banwo***<br>**Certified Scrum master, with 8+ years of successful mixed method training, coaching and facilitation techniques and strong interpersonal management skills,  enhancing team velocity & effectiveness in multifaceted projects. Self-directed Leader proficient in Scaled Agile methodologies and iterative development life-cycles and complex processes. Multilingual, fluent in English, Yoruba and French. providing satisfactory deliverables to clients in a cross-functional environment free from impediments.**<br>
+***Rafiat Banwo***<br>**Certified Scrum master, with 8+ years of successful mixed method training, coaching and facilitation techniques and strong interpersonal management skills,  enhancing team velocity & effectiveness in multifaceted projects. Self-directed Leader proficient in Scaled Agile methodologies and iterative development life-cycles and complex processes. Multilingual, fluent in English, Yoruba and French. providing satisfactory deliverables to clients in a cross-functional environment free from impediments.**<br>
 
 <br>
 
