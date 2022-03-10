@@ -13,30 +13,35 @@
  🏫CREIGHTON UNIVERSITY, NE<br>
  
  <br>
+ 
+ 
+ **💥COALITION OF OCCUPATIONAL THERAPY ADVOCATES FOR DIVERSITY (COTAD)** <br>
+ **National Representative and C.U Cohort Lead & Chair Person, Februrary 2020 – Present**<br>
+ ▪ Mentoring, interviewing and coaching different Chapter Leaders of various institution cohorts on Justice, Equity, Diversity and inclusion principles empowering their impact    on internal and external affairs and practices for transformative and accessible professional experiences.<br>
+ ▪ Problem-solving and implementing solutions and protocols that promote and train new COTAD Chapters and Committee members to Increase cultural awareness, sensitivity, and        proactivity of all team members.<br>
+ ▪ Leading and management of  >105 student Chapters within OT programs nationally, via weekly remote monitoring, public presentations on surviving racial inequality,              educational decolonization, prejudice, and racial bias.<br>
+ ▪ Collaborating with Intercollegiate stakeholders and contributing to management solutions that advocate for organizational growth, global impact, engagement, and experiences    at various levels and cycles of service.<br>
 
-**💥COALITION OF OCCUPATIONAL THERAPY ADVOCATES FOR DIVERSITY (COTAD)** <br>
-**University of Washington, Seattle, Washington (March – April) Epic ATE Consultant – Beacon**<br>
-▪ Trained providers on how to place chemo orders within Treatment plan navigator<br>
-▪ Educated RNs on how to Release signed orders<br>
-▪ Showed physician how to place admission, transfer and admission orders for PT<br>
-▪ Trained RNs how administer chemo medication<br>
-▪ Showed RNs how to complete charting on the flowsheet<br>
-
-**Prisma Health Richland Hospital, Columbia, South Carolina (Feb - March 2021)ATE Support – ClinDoc and orders**<br>
-▪ Educated end user on how to complete admission, discharge and transfer navigator<br>
-▪ Showed Providers how to add and remove problems on problem list<br>
-▪ Trained physicians on how to complete medication reconciliation appropriately<br>
-▪ Trained physicians on how to complete medication reconciliation appropriately<br>
-▪ Taught Providers how to sign, pend and modify orders<br>
-▪ Showed end user how to create PT list and unit list<br>
 
 <br>
 
-**💥National Representative and C.U Cohort Lead & Chair Person, Februrary 2020 – Present** <br>
-✔Mentoring, interviewing and coaching different Chapter Leaders of various institution cohorts on Justice, Equity, Diversity and inclusion principles empowering their impact     on internal and external affairs and practices for transformative and accessible professional experiences.<br>
-✔Problem-solving and implementing solutions and protocols that promote and train new COTAD Chapters and Committee members to Increase cultural awareness, sensitivity, and       proactivity of all team members.<br>
-✔Leading and management of  >105 student Chapters within OT programs nationally, via weekly remote monitoring, public presentations on surviving racial inequality, educational   decolonization, prejudice, and racial bias.<br>
-✔Collaborating with Intercollegiate stakeholders and contributing to management solutions that advocate for organizational growth, global impact, engagement, and experiences     at various levels and cycles of service.<br>
+ 
+**💥University of Washington, Seattle, Washington (March – April) Epic ATE Consultant – Beacon**<br>
+▪ Trained providers on how to place chemo orders within Treatment plan navigator<br>
+▪ Educated RNs on how to Release signed orders<br>
+▪ Educated physician how to place admission, transfer and admission orders for PT<br>
+▪ Trained RNs how administer chemo medication<br>
+▪ Educated RNs how to complete charting on the flowsheet<br>
+
+<br>
+
+**💥Prisma Health Richland Hospital, Columbia, South Carolina (Feb - March 2021)ATE Support – ClinDoc and orders**<br>
+▪ Educated end user on how to complete admission, discharge and transfer navigator<br>
+▪ Educated Providers how to add and remove problems on problem list<br>
+▪ Trained physicians on how to complete medication reconciliation appropriately<br>
+▪ Trained physicians on how to complete medication reconciliation appropriately<br>
+▪ Taught Providers how to sign, pend and modify orders<br>
+▪ Educated end user how to create PT list and unit list<br>
 
 <br>
 
